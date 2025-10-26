@@ -1,4 +1,4 @@
-# Ourdream AI 90% Off Latest Promo Codes for New Users
+# Ourdream.AI 90% Off Latest Promo Codes for New Users
 OurDream AI is an advanced AI art generator that allows users to create stunning digital artworks, illustrations, and concept designs using text prompts. It’s ideal for artists, designers, and anyone who wants to bring their imagination to life with the power of artificial intelligence.
 
 <h3><a href="https://beacons.ai/premiumaihub" target="_blank">Get Active Deal Now Of OurDream AI 90% Off for New Users</a>
